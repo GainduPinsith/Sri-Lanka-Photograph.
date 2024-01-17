@@ -1,1 +1,1 @@
-# Sri-Lanka-Photograph.
+# Sri-Lanka-Photograph
